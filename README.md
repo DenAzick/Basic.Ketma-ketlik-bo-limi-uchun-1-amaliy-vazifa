@@ -1,0 +1,1 @@
+# Basic.Ketma-ketlik bo'limi uchun 1-amaliy vazifa
